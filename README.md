@@ -1,1 +1,0 @@
-# Global-SNCO-Chris-Ventures
